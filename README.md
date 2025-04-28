@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on learning new things
 - 📫 How to reach me: here
 - 😄 Pronouns: 
-- ⚡ Fun fact: first generation American
+- ⚡ Fun face: go Birds
 
 <!---
 hilaryszanto/hilaryszanto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
